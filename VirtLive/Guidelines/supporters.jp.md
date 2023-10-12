@@ -45,7 +45,7 @@ VirtLive! JP 零期生 崎津 祥汰
 
 ## おわりに
 ここで書いたことは特別バーチャルYouTuberだからと言う事ではなく、人間としての倫理観をまとめただけのようなものです。
-ファンの皆さんがこうど
+ファンの皆さんが行動原則に従っていただける温かい心を持った人であることを真に願います。
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNjIxNDYxMTFdfQ==
+eyJoaXN0b3J5IjpbLTEzOTk4ODE2MDBdfQ==
 -->
