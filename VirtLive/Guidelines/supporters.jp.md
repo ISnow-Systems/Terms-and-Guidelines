@@ -12,6 +12,8 @@ VirtLive! JP 零期生 崎津 祥汰
 
 ## 私たちも人間です
 ある1人の少女の物語から始まったバーチャルYouTuberも大分世間に浸透してきていると考えます。
+今までのタレントより身近でより親密な位置に居る私たちですが、1人の人間です。
+してほしくないことや嫌なことだって当然あります
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MjIxMzEyMjNdfQ==
+eyJoaXN0b3J5IjpbLTc3MjI0OTA1Nl19
 -->
